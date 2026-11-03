@@ -49,7 +49,7 @@ I am passionate about leveraging **financial analysis, data analytics, and techn
 - Supported project monitoring, implementation, and validation.
 
 ### 🤝 Let's Connect
-- 💼 [LinkedIn](www.linkedin.com/in/priyanshu-kumar8665)
+- 💼 [LinkedIn](https://www.linkedin.com/in/priyanshu-kumar8665/)
 - 📧 Email: priyanshu8065@gmail.com
 
 ---
